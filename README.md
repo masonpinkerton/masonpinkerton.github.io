@@ -1,2 +1,0 @@
-# masonpinkerton.github.io
-Test
